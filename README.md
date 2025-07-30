@@ -21,7 +21,7 @@
 - Always curious and up for collaborative learning
 
 📫 Let’s connect:  
-[LinkedIn](https://www.linkedin.com/in/yashasvi-saini) | [Email](mailto:your-email@example.com) (update your email!)
+[LinkedIn](https://www.linkedin.com/in/yashasvi-saini) | [Email](sainiyashasvi470@gmail.com) 
 
 ---
 
